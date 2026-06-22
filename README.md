@@ -1,9 +1,9 @@
 # 46felip3
-​🤵‍♂️ - OLÁ EU SOU O FELIPE! / SOU ESTUDANTE  ​
-🏍️​ - GOSTO DE MOTOS   
-🚙​ - GOSTO DE CARROS REBAIXADOS  
-​🎱 - JOGO BILHAR  ​
-🎼​ - GOSTO DE SOM AUTOMOTIVO  
-​👤​ - GOSTO DE APREENDER TUDO UM POUCO   ​
-​👤​ - E GOSTO MUITO DE MECANICA DE MOTO/CARRO  
+​🤵‍♂️ - OLÁ EU SOU O FELIPE! / SOU ESTUDANTE         ​
+🏍️​ - GOSTO DE MOTOS       
+🚙​ - GOSTO DE CARROS REBAIXADOS         
+​🎱 - JOGO BILHAR        ​
+🎼​ - GOSTO DE SOM AUTOMOTIVO          
+​👤​ - GOSTO DE APREENDER TUDO UM POUCO      ​
+​👤​ - E GOSTO MUITO DE MECANICA DE MOTO/CARRO        
 ![](https://media.tenor.com/SOxtnUElo7wAAAAC/viceland-on-top.gif)
